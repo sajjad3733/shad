@@ -1,2 +1,2 @@
-www.shadkeerio.blogspot.com
+www.servekei.com
 web developer
